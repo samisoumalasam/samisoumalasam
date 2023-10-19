@@ -1,3 +1,5 @@
+[visitors](https://vbr.wocr.tk/badge?page_id=Kikoojap4.Kikoojap4&color=00cf00)
+
 -  Hi, I’m @Kikoojap4
 -  I’m interested in Videos Games developpement and tech
 -  I’m currently learning dev
