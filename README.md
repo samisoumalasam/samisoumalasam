@@ -1,4 +1,4 @@
-![visitors](![visitor badge](https://visitor-badge.laobi.icu/badge?page_id=samisoumalasam.visitor-badge))
+![visitor badge](https://visitor-badge.laobi.icu/badge?page_id=samisoumalasam.visitor-badge)
 
 # About me
 
