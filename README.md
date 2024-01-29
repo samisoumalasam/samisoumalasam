@@ -1,4 +1,4 @@
-![visitors](https://vbr.wocr.tk/badge?page_id=samisoumalasam.samisoumalasam&color=00cf00)
+![visitors](![visitor badge](https://visitor-badge.laobi.icu/badge?page_id=samisoumalasam.visitor-badge))
 
 # About me
 
